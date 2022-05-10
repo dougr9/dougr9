@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @dougr9
+- Hdip software development student
